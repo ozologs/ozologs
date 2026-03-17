@@ -5,7 +5,7 @@
 ⠀
 <p align="center">
   <a href="https://tiktok.com/@yoooiiink">𝗍𝗂𝗄𝗍𝗈𝗄</a>ㅤ✦ㅤ
-  <a href="https://[manqle.straw.page](https://discord.com/users/1104703942031585360)/">𝖽𝗂𝗌𝖼𝗈𝗋𝖽</a>ㅤ✦ㅤ
+  <a href="https://yoinked.straw.page/">strawpage</a>ㅤ✦ㅤ
   <a href="https://@yaboink.atabook.org/">𝖺𝗍𝖺𝖻𝗈𝗈𝗄</a>
 </p>
 ㅤ
