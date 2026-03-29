@@ -1,11 +1,1 @@
-<img width="1978" height="1405" alt="image" src="https://github.com/user-attachments/assets/c71035f7-a38d-4cf2-9b5f-ee16455186f3" />
-⠀
-⠀
-⠀
-⠀
-<p align="center">
-  <a href="https://tiktok.com/@yoooiiink">𝗍𝗂𝗄𝗍𝗈𝗄</a>ㅤ✦ㅤ
-  <a href="https://yoinked.straw.page/">strawpage</a>ㅤ✦ㅤ
-  <a href="https://@yaboink.atabook.org/">𝖺𝗍𝖺𝖻𝗈𝗈𝗄</a>
-</p>
-ㅤ
+<img width="2755" height="1725" alt="image" src="https://github.com/user-attachments/assets/9e7ae7b1-5ba9-4b3e-baf3-b47a5c310600" />
